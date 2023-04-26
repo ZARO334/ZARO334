@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @ZARO334
+- 👀 I’m interested in learning new things, music production, graphic design, 2d and 3d animation.
+- 🌱 I’m currently learning C.
+- 💞️ I’m looking to collaborate on creative endevours.
+- 📫 How to reach me zach23w@gmail.com
